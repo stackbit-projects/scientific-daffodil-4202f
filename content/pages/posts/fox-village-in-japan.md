@@ -1,5 +1,5 @@
 ---
-title: Парад династий
+title: Парад династий Екатеринбургского государственного цирка им.
 subtitle: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries.
